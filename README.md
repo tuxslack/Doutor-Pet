@@ -45,3 +45,9 @@ Acesso ao Sisbicho: https://sisbicho.rio ou http://prefeitura.rio
 ### Serviços prestados por Universidades
 
 https://animaisdorio.com/universidades/
+
+
+### Postos gratuitos da SMPDA (Secretaria Municipal de Proteção e Defesa dos Animais)
+
+https://animaisdorio.com/postos-da-smpda/
+
