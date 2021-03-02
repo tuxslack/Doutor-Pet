@@ -15,6 +15,11 @@ https://animaisdorio.com <br>
 
 ## Castrações
 
+<p align="center">
+    <img src="images/castracao.jpg" width="728" />
+</p>
+
+
 https://animaisdorio.com/castracoes/
 
 
