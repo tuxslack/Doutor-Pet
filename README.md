@@ -53,9 +53,11 @@ https://animaisdorio.com/postos-da-smpda/
 
 
 
-### BH ganha primeiro hospital público veterinário com atendimento gratuito
+### Belo Horizonte ganha primeiro hospital público veterinário com atendimento gratuito
 
 Endereço: rua Bom Sucesso, 731, bairro Carlos Prates – Belo Horizonte/MG.
+
+https://www.google.com/maps/place/R.+Bom+Sucesso,+731+-+Carlos+Prates,+Belo+Horizonte+-+MG,+30710-440/@-19.9158169,-43.9664311,17z/data=!3m1!4b1!4m2!3m1!1s0xa69738c2202c4b:0xbc3fe397c18300a3
 
 https://bhaz.com.br/2021/03/06/bh-ganha-primeiro-hospital-veterinario-com-atendimento-gratuito/
 
